@@ -6,4 +6,3 @@
 - 📫 How to reach me: DM me on Github
 - 😄 Pronouns: he/her
 - ⚡ Fun fact: I did CyberPatriot 18 last year, and was the top team in my state!
-- 🏳‍⚧🏳‍⚧🏳‍⚧🏳‍⚧🏳‍⚧🏳‍⚧🏳‍⚧🏳‍⚧🏳‍⚧🏳‍⚧🏳‍⚧🏳‍⚧🏳‍⚧🏳‍⚧🏳‍⚧🏳‍⚧ 
